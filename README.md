@@ -13,7 +13,6 @@ Administrator, MBA in Business Management from FGV. Responsible, proactive and r
 
 **Links:**
 * [LinkedIn]()https://www.linkedin.com/in/henriquepsehn/)
-* [Medium](https://www.medium.com)
 
 
 ## Projetos:
